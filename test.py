@@ -1,1 +1,1 @@
-print(abs.__doc__)
+print("hello")
