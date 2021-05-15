@@ -1,6 +1,5 @@
-## Hi there 👋
+# Hi there 👋
 
-**dangvanducgitthub/dangvanducgitthub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 ### I'm Đặng Văn Đức
 - 😄 Birthday 14-02-2000 
