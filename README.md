@@ -12,4 +12,3 @@
 - 🌱 Hobby :
    - My hobby is playing games. However, I’m not addicted to the game at all. I only play games when I’ve done my work. The game that I often play is League of Legends
    - Sometimes I read a book or listen to music in the rain
-- [Music](https://soundcloud.com/kh-i-nguy-n-772586147/k-c-n-trong-th-nh-ph-vi-t-b-i)
