@@ -3,15 +3,13 @@
 **dangvanducgitthub/dangvanducgitthub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 ### I'm Đặng Văn Đức
-- 😄 Birthday 14-02-2000
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Contact Info: 
-
+- 😄 Birthday 14-02-2000 
+- 👯 Relationship status : Dating...😄
 - 📫 How to reach me:
    -[Facebook](https://www.facebook.com/duccnhii)
-   -[instargram](https://www.instagram.com/dangduc_/)
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+   -[Instargram](https://www.instagram.com/dangduc_/)
+- 😄 Maxim: Thật lười để chống lại sự lười biếng.
+- ⚡ Fun fact: I'm very lazyyy.
+- 🌱 Hobby :
+   - My hobby is playing games. However, I’m not addicted to the game at all. I only play games when I’ve done my work. The game that I often play is League of Legends
+   - Sometimes I read a book or listen to music in the rain
