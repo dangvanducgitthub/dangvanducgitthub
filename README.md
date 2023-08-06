@@ -3,9 +3,8 @@
 
 ### I'm Đặng Văn Đức
 - 😄 Birthday 14-02-2000 
-- 👯 Relationship status : Dating...😄
 - 📫 How to reach me:
-   -[Facebook](https://www.facebook.com/duccnhii)
+   -[Facebook](https://www.facebook.com/dangvanduc1422/)
    -[Instargram](https://www.instagram.com/dangduc_/)
 - 😄 Maxim: Thật lười để chống lại sự lười biếng.
 - ⚡ Fun fact: I'm very lazyyy.
