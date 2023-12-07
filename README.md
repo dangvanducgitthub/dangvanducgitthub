@@ -2,7 +2,6 @@
 
 
 ### I'm Đặng Văn Đức
-- 😄 Birthday 14-02-2000 
 - 📫 How to reach me:
    -[Facebook](https://www.facebook.com/dangvanduc1422/)
    -[Instargram](https://www.instagram.com/dangduc_/)
